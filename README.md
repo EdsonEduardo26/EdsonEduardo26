@@ -6,7 +6,7 @@ Tenho **19** anos
 
 Sou um futuro gestor de T.I! 👨‍💻💻
 
-My methodology is to always seek more knowledge and never stop 🚀
+Minha metodologia é buscar sempre mais conhecimento e nunca parar 🚀
 
 ### 🌍 "Conhecimento nunca é demais!" 🧠
 
