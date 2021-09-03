@@ -2,9 +2,11 @@
 
 My name is Edson Eduardo 👦
 
+I'm **19** years old
+
 I'm a future IT manager! 👨‍💻💻
 
-My methodology is to always seek more knowledge and never stop
+My methodology is to always seek more knowledge and never stop 🚀
 
 ### 🌍 "Conhecimento nunca é demais!" 🧠
 
